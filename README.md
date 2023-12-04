@@ -1,3 +1,3 @@
 # mmad
-KFC nya kk
-mau kfc kak
+1KFC nya kk
+2mau kfc kak?
